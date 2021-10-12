@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @4Z0T-NFT
+- 👀 I’m interested in NFT and blockchain coding
+- 🌱 I’m currently learning Solidity
+- 💞️ I’m looking to collaborate in NFT Land
+- 📫 Hit me on Discord --> Pareil#4649
